@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **karthick.ec20@bitsathy.ac.in**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1m1oMUPvMrhCm88W4-WReXIH8vP_njBCA/view?usp=share_link](https://drive.google.com/file/d/1AyiZiw0rHxUeYRt_ViLbtUX6qh1_8sz3/view?usp=share_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1m1oMUPvMrhCm88W4-WReXIH8vP_njBCA/view?usp=share_link](https://karthickjayasankar.github.io/Portfolio/#)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
